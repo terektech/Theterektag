@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Theterektag
+- 👋 Hi, I’m Aryan singh
 - 👀 I’m interested in blogging, coding , internet marketing ,etc..
 - 🌱 I’m currently learning blogging and coding .
 - 💞️ I’m looking to convert my passion into my profession.
